@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @EmeraldBTC
-- 👀 I’m interested in ... Advancing my skills 
+- 👀 I’m interested in ... Blockchain development  
 - 🌱 I’m currently learning ... FINTECH
 - 💞️ I’m looking to collaborate on ... Crypto currency
 - 📫 How to reach me ... @emiliosporsche@gmail.com
